@@ -10,4 +10,4 @@
 
 国产亚洲av片亚洲内容涵盖广泛题材，包括原创剧情、自拍实录、激情合集与高清无码资源，适合各类观看偏好。平台采用CDN全球加速技术，支持快速加载与断点续播，确保稳定播放体验。通过个性推荐算法提升匹配度，同时可自定义收藏、筛选与标签管理功能，是探索高质量视频资源的便捷入口。
 
-<span style="display:none;">[Canonical link](https://github.com/edc20250710 ）</span>
+<span style="display:none;">[Canonical link](https://github.com/edc20250710/edc1 ）</span>
